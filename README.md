@@ -7,6 +7,9 @@ still CyBit would be cool. but SyBit and Credits from Star Trek: Federation cred
 
 	Because Credits will do! :D
 
+
+	SyBit Credits: SBC
+
 Besides crypto currency is more of a digital credit not a coin.
 
 
